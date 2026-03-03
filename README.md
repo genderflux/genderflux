@@ -19,6 +19,10 @@ also my pony making skills have downgraded sorry i promise to make my astro look
 
 <p align="center"
 
+read my strawpage for my dni blahblah blah and use tone tags with me
+
+<p align="center"
+
 ok bye. use he/toon pronouns for me or ask
 
 <p align="center"
