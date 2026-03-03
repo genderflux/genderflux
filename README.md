@@ -36,6 +36,4 @@ ok bye. use he/toon pronouns for me or ask
 ![.](https://64.media.tumblr.com/68f394594f3a52b76cfbe1c492efa3ce/6a013847a16bf59c-e9/s75x75_c1/0913c0f35820691cdbb71ade79b600c78c807a79.gifv)
 ![.](https://64.media.tumblr.com/89ae274529b9028b986de46e866748cc/6a013847a16bf59c-2d/s100x200/01074e5d7cc810006afb241bf0db212d75f26a5a.gifv)
 
-<p align="center"
-
 ![.](https://64.media.tumblr.com/8e1cf362c6fb351c613ea47191416831/acd92770a4fde30a-db/s1280x1920/c3fca40d9628c44b3597d176586e9de8ec89cd30.pnj)
