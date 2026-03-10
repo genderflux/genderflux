@@ -23,6 +23,10 @@ read my strawpage for my dni blahblah blah and use tone tags with me
 
 <p align="center"
 
+i block people i dunno that follow me / people who mass follow others on github , sorry
+
+<p align="center"
+
 ok bye. use he/toon pronouns for me or ask
 
 <p align="center"
