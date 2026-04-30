@@ -7,7 +7,7 @@
 im too lazy to update my shit so hi im astro or indica 
 <p align="center"
   
-im 18 years old turning 19 this month (yippie) umm im rarely on ponytown because im busy w college. sorry
+im 19 yrs old (happy vry late bday to mee) umm im rarely on ponytown because im busy w college. sorry
 <p align="center"
 
 ignore whatevers on my pronouns.cc rn , im a butch gnc agender transmasc queer guy. #i love labelss
@@ -20,7 +20,9 @@ also my pony making skills have downgraded sorry i promise to make my astro look
 <p align="center"
 
 i block freely on pt blahblah blah and use tone tags with me
-<br>
+
+<p align="center"
+
 also i still use my hellaverse ponies and sit up in that area even tho i dont like either of the shows anymore, if this bugs u or makes u violetly angry ff to unfriend me n junk :p
 
 <p align="center"
