@@ -19,11 +19,13 @@ also my pony making skills have downgraded sorry i promise to make my astro look
 
 <p align="center"
 
-read my strawpage for my dni blahblah blah and use tone tags with me
+i block freely on pt blahblah blah and use tone tags with me
+<br>
+also i still use my hellaverse ponies and sit up in that area even tho i dont like either of the shows anymore, if this bugs u or makes u violetly angry ff to unfriend me n junk :p
 
 <p align="center"
 
-i block people i dunno that follow me / people who mass follow others on github , sorry
+on github i block people i dunno that follow me / people who mass follow others , sorry
 
 <p align="center"
 
