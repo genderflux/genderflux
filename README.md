@@ -27,6 +27,10 @@ also i still use my hellaverse ponies and sit up in that area even tho i dont li
 
 <p align="center"
 
+stop abbreviating hazbin hotel to hh btw it stands for heil h/tler. change it to hzbh
+
+<p align="center"
+
 on github i block people i dunno that follow me / people who mass follow others , sorry
 
 <p align="center"
