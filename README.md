@@ -4,10 +4,13 @@
 
 <p align="center"
 
-im too lazy to update my shit so hi im astro or indica 
+im too lazy to update my shit so hi im astro, indica/indi, or kin names 
+<p align="center"
+
+I DO NOT SUPPORT QWEL. dandys world is and has been my special interest, i am currently playing a MODDED DANDYS WORLD GAME instead of the original to avoid giving money to qwel. do not bother me about this. thank you!
 <p align="center"
   
-im 19 yrs old (happy vry late bday to mee) umm im rarely on ponytown because im busy w college. sorry
+im 19 yrs old & rarely on pt cus i never use my laptop xd
 <p align="center"
 
 ignore whatevers on my pronouns.cc rn , im a butch gnc agender transmasc queer guy. #i love labelss
@@ -15,7 +18,7 @@ ignore whatevers on my pronouns.cc rn , im a butch gnc agender transmasc queer g
 <p align="center"
 
 if u ever see me on ponytown please feel free to sit/cud w me PLEAAAAASE PLEASE IM SO LONELY!!!!!!!!!!!!!
-also my pony making skills have downgraded sorry i promise to make my astro look betterr
+also my pony making skills have downgraded sorry i promise to make my astro look better... dont point it out
 
 <p align="center"
 
@@ -27,7 +30,7 @@ also i still use my hellaverse ponies and sit up in that area even tho i dont li
 
 <p align="center"
 
-stop abbreviating hazbin hotel to hh btw it stands for heil h/tler. change it to hzbh
+stop abbreviating hazbin hotel to hh and creepypasta to cp. use hzbh and crp instead brah
 
 <p align="center"
 
