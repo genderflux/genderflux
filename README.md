@@ -15,11 +15,11 @@ davekat karezi jadenep fefnep enthusiast
 
 I DO NOT SUPPORT QWEL. dandys world is and has been my special interest, i am currently playing a MODDED DANDYS WORLD GAME instead of the original to avoid giving money to qwel. do not bother me about this. thank you!
 <p align="center"
-
-feel free to c+h me even when im with a friend or multiple friends!! 
-<p align="center"
   
 im very open to cuddles and interactions. i struggle to hold convos tho so i wont talk fur a long time
+<p align="center"
+
+^^^ feel free to c+h me even when im with a friend or multiple friends!! 
 <p align="center"
 
 i have a slight typing quirk. i use nepetas + karkats tq from time 2 time , lmk if it ever gets annoying LMAO
