@@ -10,6 +10,9 @@ ill redo this again eventually whoops
 indi / karkat or other kin names . 9teen butch gnc
 <p align="center"
 
+davekat karezi jadenep fefnep enthusiast
+<p align="center"
+
 I DO NOT SUPPORT QWEL. dandys world is and has been my special interest, i am currently playing a MODDED DANDYS WORLD GAME instead of the original to avoid giving money to qwel. do not bother me about this. thank you!
 <p align="center"
 
