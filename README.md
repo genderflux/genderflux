@@ -4,29 +4,24 @@
 
 <p align="center"
 
-im too lazy to update my shit so hi im astro, indica/indi, or kin names 
+ill redo this again eventually whoops
+<p align="center"
+
+indi / karkat or other kin names . 9teen butch gnc
 <p align="center"
 
 I DO NOT SUPPORT QWEL. dandys world is and has been my special interest, i am currently playing a MODDED DANDYS WORLD GAME instead of the original to avoid giving money to qwel. do not bother me about this. thank you!
 <p align="center"
-  
-im 19 yrs old & rarely on pt cus i never use my laptop xd
-<p align="center"
 
-ignore whatevers on my pronouns.cc rn , im a butch gnc agender transmasc queer guy. #i love labelss
+feel free to c+h me even when im with a friend or multiple friends!! im very open to cuddles and interactions. i struggle to hold convos tho so i wont talk fur a long time
 
 <p align="center"
 
-if u ever see me on ponytown please feel free to sit/cud w me PLEAAAAASE PLEASE IM SO LONELY!!!!!!!!!!!!!
-also my pony making skills have downgraded sorry i promise to make my astro look better... dont point it out
+i have a slight typing quirk. i use nepetas + karkats tq from time 2 time , lmk if it ever gets annoying LMAO
 
 <p align="center"
 
-i block freely on pt blahblah blah and use tone tags with me
-
-<p align="center"
-
-also i still use my hellaverse ponies and sit up in that area even tho i dont like either of the shows anymore, if this bugs u or makes u violetly angry ff to unfriend me n junk :p
+if uve gotten a message on atabook from karkat who uses all caps n shit n usually doesnt link a github , thats likely me !! i promise im not actually rude i just like to larp on peoples atas. lmk if this is also an issue 
 
 <p align="center"
 
@@ -34,11 +29,7 @@ stop abbreviating hazbin hotel to hh and creepypasta to cp. use hzbh and crp ins
 
 <p align="center"
 
-on github i block people i dunno that follow me / people who mass follow others , sorry
-
-<p align="center"
-
-ok bye. use he/toon pronouns for me or ask
+ok bye. use he/toon pronouns for me or ask !
 
 <p align="center"
   
