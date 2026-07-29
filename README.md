@@ -2,12 +2,7 @@
 
 ![.](https://64.media.tumblr.com/f2889e31fa6d806103aae73a2fe6aba3/5ed6fee504ff9e26-64/s2048x3072/0d54a07b5aaa3edb89374da79b19fb15c976d8eb.pnj)
 
-<p align="center"
-
-ill redo this again eventually whoops
-<p align="center"
-
-indi / karkat or other kin names . 9teen butch gnc
+HELLO !!!! im indi / kin names . he or ask fur prns
 <p align="center"
 
 davekat karezi jadenep fefnep enthusiast
