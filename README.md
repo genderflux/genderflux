@@ -30,7 +30,7 @@ if uve gotten a message on atabook from karkat who uses all caps n shit n usuall
 
 <p align="center"
   
-![.](https://64.media.tumblr.com/db2d1e42f14a3f53db3e9a6680ab884a/3a61514a462c543f-76/s250x400/f14c893fa5d9b41775eaf6617f9647ee3444836c.pnj)
+![.](https://64.media.tumblr.com/b90cf261a0bec03949d427a46a9b3b11/29e013d9bf1533bc-8f/s100x200/2af82cba148515c8fae2a9ed581c9b953cf587a2.gifv)
 ![.](https://64.media.tumblr.com/4b6491060b7cddadae06cc1ad7dba4eb/3a61514a462c543f-c9/s250x400/6f7b15a1092ce807a0f721dd5e82ee997d4144c0.pnj)
 ![.](https://64.media.tumblr.com/b45e3476bbf47c7497fa55e58b6fbe27/3a61514a462c543f-4f/s250x400/f4551585ff7bad47e5728496360f62b1c9b4fa60.pnj)
 
