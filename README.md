@@ -1,6 +1,6 @@
 <p align="center"
 
-![.](https://sta.sh/04eyaam77uo)
+![.](https://www.deviantart.com/stash/04eyaam77uo)
 
 <p align="center"
 
