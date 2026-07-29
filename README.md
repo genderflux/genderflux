@@ -4,34 +4,29 @@
 
 <p align="center"
 
-HELLO !!!! im indi / kin names . he or ask fur prns
+:33< HALLOW !!!! im indi/manny or other kin names . he/toon or ask fur prns
 <p align="center"
 
-davekat karezi jadenep fefnep enthusiast
+genderflux butch sapphillean critter thing ^_^ I AM OPENLY WEIRD !!!1!
 <p align="center"
 
-I DO NOT SUPPORT QWEL. dandys world is and has been my special interest, i am currently playing a MODDED DANDYS WORLD GAME instead of the original to avoid giving money to qwel. do not bother me about this. thank you!
+davekat karezi jadekat jadenep fefnep enthusiast
+<p align="center"
+
+I DO NOT SUPPORT QWEL. dandys world is and has been my special interest, i am currently playing a MODDED DANDYS WORLD GAME instead of the original to avoid giving money to qwel.. do not bother me about this, thank you!
 <p align="center"
   
-im very open to cuddles and interactions. i struggle to hold convos tho so i wont talk fur a long time
+very open to cuddles and interactions !! i struggle to hold convos tho so i wont talk fur a long time,,
 <p align="center"
 
-^^^ feel free to c+h me even when im with a friend or multiple friends!! 
+^^^ feel free to c+h me even when im with a friend or multiple friends, i luv cudpiles
 <p align="center"
 
-i have a slight typing quirk. i use nepetas + karkats tq from time 2 time , lmk if it ever gets annoying LMAO
-
-<p align="center"
-
-if uve gotten a message on atabook from karkat who uses all caps n shit n usually doesnt link a github , thats likely me !! i promise im not actually rude i just like to larp on peoples atas. lmk if this is also an issue 
+i have a slight typing quirk, mainly combining nepeta + karkats tq :3
 
 <p align="center"
 
-stop abbreviating hazbin hotel to hh and creepypasta to cp. use hzbh and crp instead brah
-
-<p align="center"
-
-ok bye. use he/toon pronouns for me or ask !
+if uve gotten a message on atabook from karkat who uses all caps n shit n usually doesnt link a github, thats likely me !! i promise im not actually rude i just like to larp on peoples atas hehe
 
 <p align="center"
   
