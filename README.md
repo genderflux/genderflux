@@ -36,8 +36,8 @@ if uve gotten a message on atabook from karkat who uses all caps n shit n usuall
 
 <p align="center"
 
-![.](https://64.media.tumblr.com/68f394594f3a52b76cfbe1c492efa3ce/6a013847a16bf59c-e9/s75x75_c1/0913c0f35820691cdbb71ade79b600c78c807a79.gifv)
-![.](https://64.media.tumblr.com/89ae274529b9028b986de46e866748cc/6a013847a16bf59c-2d/s100x200/01074e5d7cc810006afb241bf0db212d75f26a5a.gifv)
+![.](https://64.media.tumblr.com/c039ed19037dd1521be91df0b1431d9b/3af9d56f8dc88b25-46/s100x200/fba80c9d4dd973d0cbaf89c7df08d46989730522.gifv)
+![.](https://64.media.tumblr.com/bdac0d668fc7e66b6132cc2732d70d01/3af9d56f8dc88b25-73/s100x200/18ca32dd1fffbc8c5ac8a0b20b7b38cdcc35df61.gifv)
 
 <p align="center"
 
