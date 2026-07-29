@@ -42,3 +42,8 @@ if uve gotten a message on atabook from karkat who uses all caps n shit n usuall
 <p align="center"
 
 ![.](https://64.media.tumblr.com/81e4746ea74121f2acfabfbf34981760/f2f9d2834765734f-2d/s400x600/73f3d8f1848fe5c57fd124b7f2e5460973189be0.gifv)
+
+<p align="center"
+
+verity fans dni GO SOMEWHERE
+
