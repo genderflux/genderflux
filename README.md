@@ -45,5 +45,5 @@ if uve gotten a message on atabook from karkat who uses all caps n shit n usuall
 
 <p align="center"
 
-verity fans dni GO SOMEWHERE
+verity fans dni bro GO SOMEWHERE
 
