@@ -7,7 +7,7 @@
 :33< HALLOW !!!! im indi/manny or other kin names . he/toon or ask fur prns
 <p align="center"
 
-genderflux butch sapphillean critter thing ^_^ I AM OPENLY WEIRD !!!1!
+19 yo genderflux butch sapphillean therian critter ^_^ I AM OPENLY WEIRD !!!1!
 <p align="center"
 
 manton pizzaparty/candypizza & poly starters enthusiast
