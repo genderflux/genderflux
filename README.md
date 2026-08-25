@@ -1,6 +1,6 @@
 <p align="center"
 
-![.](https://64.media.tumblr.com/f2889e31fa6d806103aae73a2fe6aba3/5ed6fee504ff9e26-64/s2048x3072/0d54a07b5aaa3edb89374da79b19fb15c976d8eb.pnj)
+![.](https://64.media.tumblr.com/cc22acf8cb61c20f69c7d47ee9256b9b/bcc57926d38337ed-e4/s2048x3072/163b34aa8073aceb296ef876488a0da9c3bba081.pnj)
 
 <p align="center"
 
@@ -10,7 +10,11 @@
 genderflux butch sapphillean critter thing ^_^ I AM OPENLY WEIRD !!!1!
 <p align="center"
 
-davekat karezi jadekat jadenep fefnep enthusiast
+manton pizzaparty/candypizza & poly starters enthusiast
+<p align="center"
+
+![.](https://64.media.tumblr.com/b9f07663a9e3a0ce0b4d213cf67eb24c/de5514ca3f923f70-2d/s540x810/b125f288fdf7f04d371da8e84bc5f7004b3fbf3b.gifv)
+
 <p align="center"
 
 I DO NOT SUPPORT QWEL. dandys world is and has been my special interest, i am currently playing a MODDED DANDYS WORLD GAME instead of the original to avoid giving money to qwel.. do not bother me about this, thank you!
@@ -22,26 +26,22 @@ very open to cuddles and interactions !! i struggle to hold convos tho so i wont
 ^^^ feel free to c+h me even when im with a friend or multiple friends, i luv cudpiles
 <p align="center"
 
-i have a slight typing quirk, mainly combining nepeta + karkats tq :3
-
-<p align="center"
-
-if uve gotten a message on atabook from karkat who uses all caps n shit n usually doesnt link a github, thats likely me !! i promise im not actually rude i just like to larp on peoples atas hehe
+i have a slight typing quirk, mainly nepetas :3
 
 <p align="center"
   
-![.](https://64.media.tumblr.com/551e2891db18b82bdd6bbf8bfb5274a1/1b8a6913aec5938a-a8/s100x200/9cbddcf7de59d515b297a29005aeab8861e6e95e.jpg)
-![.](https://64.media.tumblr.com/0a42f9632361f77996168730de49dca5/383b384772d9aa1a-3e/s100x200/e059574e79277aed70eefd8a70bbb33af76c8951.pnj)
-![.](https://64.media.tumblr.com/6255292f9bb9b46972c3a84da0768fe9/a4048325815c0028-ba/s100x200/a2125bedaa52050393ba304563eca9312b013f5a.gifv)
+![.](https://64.media.tumblr.com/23391720d5c26c22f6da5850800dd0cd/7c09eca7f7414b7c-82/s100x200/113bfed39f50875276da2a9df0d3cee6cb0b1310.pnj)
+![.](https://files.catbox.moe/9bzltj.png)
+![.](https://files.catbox.moe/bpel72.png)
 
 <p align="center"
 
-![.](https://64.media.tumblr.com/c039ed19037dd1521be91df0b1431d9b/3af9d56f8dc88b25-46/s100x200/fba80c9d4dd973d0cbaf89c7df08d46989730522.gifv)
-![.](https://64.media.tumblr.com/bdac0d668fc7e66b6132cc2732d70d01/3af9d56f8dc88b25-73/s100x200/18ca32dd1fffbc8c5ac8a0b20b7b38cdcc35df61.gifv)
+![.](https://64.media.tumblr.com/ca89011de5783ab03c8703506449723f/22446b416299184a-9f/s100x200/70c263de711e327964476ef377df3b6131e75f71.gifv)
+![.](https://64.media.tumblr.com/e108a2e492300d7fa586b389cba1e6d7/31332bafce1a3afa-4f/s100x200/42d1c989fdcff7ae46d81d54e4712ccab94dac99.gifv)
 
 <p align="center"
 
-![.](https://64.media.tumblr.com/81e4746ea74121f2acfabfbf34981760/f2f9d2834765734f-2d/s400x600/73f3d8f1848fe5c57fd124b7f2e5460973189be0.gifv)
+![.](https://64.media.tumblr.com/5f9556dc9a98c52966099c258905ae98/4cd97ed5dbf47daa-52/s400x600/83f38847d5a090a013c8f880a01fc82a1411d1e3.gifv)
 
 <p align="center"
 
