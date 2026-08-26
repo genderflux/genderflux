@@ -13,7 +13,11 @@
 manton pizzaparty/candypizza & poly starters enthusiast
 <p align="center"
 
-![.](https://64.media.tumblr.com/b9f07663a9e3a0ce0b4d213cf67eb24c/de5514ca3f923f70-2d/s540x810/b125f288fdf7f04d371da8e84bc5f7004b3fbf3b.gifv)
+![.](https://64.media.tumblr.com/07ad7ad0fa8f2f8560534538cc14a1ed/28c85da65ba55326-ad/s75x75_c1/aac32493cf44e721a66eae01154f060be996a944.gifv)
+
+<p align="center"
+
+![.](https://64.media.tumblr.com/a27a309ee8cb15fa41205392fe1a2bf5/28c85da65ba55326-ad/s250x400/27d07d9a8baa12a51b55ac4e423d98c2eb04fea3.gifv)
 
 <p align="center"
 
