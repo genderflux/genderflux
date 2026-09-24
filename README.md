@@ -34,7 +34,7 @@ i sometimes use nepetas typing quirk ! lmk if this is annoying/unreadable and il
 <p align="center"
 
 ![.](https://64.media.tumblr.com/021cc22dffa4ae6f263c7db94e73f134/24b0afaa35ef47d4-0c/s250x400/d0c3598d5d47cbf4ee079932b4799d0c8ab029a7.gifv)
-![.](https://64.media.tumblr.com/e4472b0fb0b58f3333cd919b7252542a/6e77163f7557f56c-e9/s75x75_c1/d1ec671319b819f9a6c10be7b1c1ab55ca91b78a.webp)
+![.](https://64.media.tumblr.com/8041ac5e104f930e055390e347d92cd3/2b548143afef8a86-d0/s250x400/521ca5d63bd9651a5bec34e19fa35d86cb371b77.gifv)
 
 <p align="center"
 
