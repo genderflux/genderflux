@@ -4,13 +4,13 @@
 
 <p align="center"
 
-:33< HALLOW !!!! im indi/manny or other kin names . he/toon or ask fur prns
+:33< HALLOW !!!! im indi/avery or other kin names , he/toon or ask fur prns
 <p align="center"
 
-19 yo genderflux butch sapphillean therian critter ^_^ I AM OPENLY WEIRD !!!1!
+19 yo genderflux butch sapphillean therian critter ^o^ I AM OPENLY WEIRD CRINGE & FREE !!!1!
 <p align="center"
 
-manton pizzaparty/candypizza & poly starters enthusiast
+howlingflame (eclipse x waxwell) enthusiast 
 <p align="center"
 
 ![.](https://64.media.tumblr.com/07ad7ad0fa8f2f8560534538cc14a1ed/28c85da65ba55326-ad/s75x75_c1/aac32493cf44e721a66eae01154f060be996a944.gifv)
