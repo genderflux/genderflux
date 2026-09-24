@@ -17,10 +17,6 @@ howlingflame (eclipse x waxwell) enthusiast
 
 <p align="center"
 
-![.](https://64.media.tumblr.com/a27a309ee8cb15fa41205392fe1a2bf5/28c85da65ba55326-ad/s250x400/27d07d9a8baa12a51b55ac4e423d98c2eb04fea3.gifv)
-
-<p align="center"
-
 I DO NOT SUPPORT QWEL. dandys world is and has been my special interest, i am currently playing a MODDED DANDYS WORLD GAME instead of the original to avoid giving money to qwel.. do not bother me about this, thank you!
 <p align="center"
   
