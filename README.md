@@ -33,7 +33,7 @@ i sometimes use nepetas typing quirk ! lmk if this is annoying/unreadable and il
 
 <p align="center"
 
-![.](https://64.media.tumblr.com/0209c685db0be43e9b2e0a5eebd69c6e/ef596453494b2fa2-32/s75x75_c1/1da4f3534c07d739128de41acae03dbf3a853b50.gifv)
+![.](https://64.media.tumblr.com/021cc22dffa4ae6f263c7db94e73f134/24b0afaa35ef47d4-0c/s250x400/d0c3598d5d47cbf4ee079932b4799d0c8ab029a7.gifv)
 ![.](https://64.media.tumblr.com/e4472b0fb0b58f3333cd919b7252542a/6e77163f7557f56c-e9/s75x75_c1/d1ec671319b819f9a6c10be7b1c1ab55ca91b78a.webp)
 
 <p align="center"
