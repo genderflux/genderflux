@@ -4,7 +4,7 @@
 
 <p align="center"
 
-:33< HALLOW !!!! im indi/avery or other kin names , he/toon or ask fur prns
+:33< HALLOW !!!! im indi/avery + other kin names , he/toon or ask fur prns
 <p align="center"
 
 19 yo genderflux butch sapphillean therian critter ^o^ I AM OPENLY WEIRD CRINGE & FREE !!!1!
