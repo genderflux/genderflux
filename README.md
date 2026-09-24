@@ -33,7 +33,7 @@ i have a slight typing quirk, mainly nepetas :3
 
 <p align="center"
 
-![.](https://64.media.tumblr.com/ca89011de5783ab03c8703506449723f/22446b416299184a-9f/s100x200/70c263de711e327964476ef377df3b6131e75f71.gifv)
+![.](https://64.media.tumblr.com/0209c685db0be43e9b2e0a5eebd69c6e/ef596453494b2fa2-32/s75x75_c1/1da4f3534c07d739128de41acae03dbf3a853b50.gifv)
 ![.](https://64.media.tumblr.com/e108a2e492300d7fa586b389cba1e6d7/31332bafce1a3afa-4f/s100x200/42d1c989fdcff7ae46d81d54e4712ccab94dac99.gifv)
 
 <p align="center"
