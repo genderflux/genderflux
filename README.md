@@ -13,7 +13,7 @@
 howlingflame (eclipse x waxwell) enthusiast 
 <p align="center"
 
-![.](https://64.media.tumblr.com/07ad7ad0fa8f2f8560534538cc14a1ed/28c85da65ba55326-ad/s75x75_c1/aac32493cf44e721a66eae01154f060be996a944.gifv)
+![.](https://64.media.tumblr.com/8abc0b46a8b14723f9151967b6934644/9fcc7cb0a61c4728-ed/s640x960/7fc699195bedfca7962f5587d04d6a9b76d9bc7f.pnj)
 
 <p align="center"
 
