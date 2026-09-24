@@ -29,7 +29,7 @@ i have a slight typing quirk, mainly nepetas :3
   
 ![.](https://64.media.tumblr.com/e6c31eedf5c486cdb34a9847551d87c2/3927d24437185892-5b/s100x200/b5ede8a5989191b7432709e9b7c4dd7fdf954433.pnj)
 ![.](https://64.media.tumblr.com/6c4b3766f8d07c6b8fc9a6343f353992/188200926fbff539-c5/s100x200/a49a11055eacd8d4d2fa4705e771dcca64a1c817.gifv)
-![.](https://files.catbox.moe/bpel72.png)
+![.](https://64.media.tumblr.com/3d4e316c2ce77f3bbf8cf0712cdb275d/220640222d137190-9d/s100x200/41dbd86d982e45297c3fbe7637e8b83ae249e296.pnj)
 
 <p align="center"
 
