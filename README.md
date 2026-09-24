@@ -27,7 +27,7 @@ i have a slight typing quirk, mainly nepetas :3
 
 <p align="center"
   
-![.](https://64.media.tumblr.com/23391720d5c26c22f6da5850800dd0cd/7c09eca7f7414b7c-82/s100x200/113bfed39f50875276da2a9df0d3cee6cb0b1310.pnj)
+![.](https://64.media.tumblr.com/e6c31eedf5c486cdb34a9847551d87c2/3927d24437185892-5b/s100x200/b5ede8a5989191b7432709e9b7c4dd7fdf954433.pnj)
 ![.](https://files.catbox.moe/9bzltj.png)
 ![.](https://files.catbox.moe/bpel72.png)
 
