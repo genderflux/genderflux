@@ -45,7 +45,7 @@ i have a slight typing quirk, mainly nepetas :3
 
 <p align="center"
 
-![.](https://64.media.tumblr.com/5f9556dc9a98c52966099c258905ae98/4cd97ed5dbf47daa-52/s400x600/83f38847d5a090a013c8f880a01fc82a1411d1e3.gifv)
+![.](https://64.media.tumblr.com/93e5c045d32a26f05285c258191ee4f9/45b6028c9474b545-e3/s250x400/f43993bc0fe05b24f22fb8e2a91a4a2c781500db.gifv)
 
 <p align="center"
 
