@@ -23,7 +23,7 @@ very open to cuddles and interactions !! i struggle to hold convos tho so i wont
 ^^^ feel free to c+h me even when im with a friend or multiple friends - i luv cudpiles i giggle n kick my feet
 <p align="center"
 
-i sometimes use nepetas typing quirk ! lmk if this is annoying/unreadable and l drop it when talking to u
+i sometimes use nepetas typing quirk ! lmk if this is annoying/unreadable and ill drop it when talking to u :p
 
 <p align="center"
   
